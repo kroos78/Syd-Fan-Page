@@ -1,2 +1,2 @@
-# Syd-Fane-Page
+# Syd-Fan-Page
 fan page-pre-work
